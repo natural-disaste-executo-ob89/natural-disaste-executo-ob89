@@ -1,4 +1,4 @@
-
+Why pay for scripts when you can get math for brainrots excl Scripts Free: spd & tele for free? Experience the thrill of math for brainrots with spd and tele, all at no cost to you. Safe, effective, and always up-to-date, math for brainrots excl Scripts Free: spd & tele is the ultimate gaming companion.
 
 
 ---
